@@ -1,0 +1,1 @@
+Nokta_adam63_63otential-parakeet
